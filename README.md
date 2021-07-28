@@ -1,2 +1,2 @@
-# idk bro
-kill me
+# my first project
+dont judge me :<<
